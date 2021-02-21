@@ -1,1 +1,1 @@
-burgers & bots
+🍔 & 🤖
